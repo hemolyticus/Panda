@@ -15,4 +15,4 @@
 1. panda
 
 
-![Philadelphia's Magic Gardens. This place was so cool!](https://images.app.goo.gl/GmxLrcMrKX7QZRR76 "Philadelphia's Magic Gardens")
+My favorite search engine is [Duck Duck Go](https://duckduckgo.com "The best search engine for privacy").
