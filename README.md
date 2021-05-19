@@ -15,4 +15,4 @@
 1. panda
 
 
-![Philadelphia's Magic Gardens. This place was so cool!](https://images.app.goo.gl/GmxLrcMrKX7QZRR76 "Philadelphia's Magic Gardens")
+![Philadelphia's Magic Gardens. This place was so cool!](https://upload.wikimedia.org/wikipedia/commons/9/90/Giant_Panda_2.JPG "Philadelphia's Magic Gardens")
