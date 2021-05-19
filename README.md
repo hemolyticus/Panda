@@ -1,18 +1,12 @@
 # Panda
-## Panda Ipsum the Red
-
-1. P
-2. A
-3. N
-4. D
-5. A
+## This is all about panda
 <br>
-<br>
-<p>panda</p>
-1. cat
-1. koala
-1. turtle
-1. panda
-
-
 ![Philadelphia's Magic Gardens. This place was so cool!](https://upload.wikimedia.org/wikipedia/commons/9/90/Giant_Panda_2.JPG "Philadelphia's Magic Gardens")
+<br>
+<p>Initially, the primary method of breeding giant pandas in captivity was by artificial insemination, as they seemed to lose their interest in mating once they were captured. This led some scientists to try extreme methods, such as showing them videos of giant pandas mating and giving the males sildenafil (commonly known by name Viagra). Only recently have researchers started having success with captive breeding programs, and they have now determined giant pandas have comparable breeding to some populations of the American black bear, a thriving bear species.</p>
+
+<p>The normal reproductive rate is considered to be one young every two years.Two of the panda's most distinctive features, its large size and round face, are adaptations to its bamboo diet. Anthropologist Russell Ciochon observed: "[much] like the vegetarian gorilla, the low body surface area to body volume [of the giant panda] is indicative of a lower metabolic rate. This lower metabolic rate and a more sedentary lifestyle allows the giant panda to subsist on nutrient poor resources such as bamboo." Similarly, the giant panda's round face is the result of powerful jaw muscles, which attach from the top of the head to the jaw. Large molars crush and grind fibrous plant material.By 1984, however, pandas were no longer given as gifts.</p>
+
+<p>Instead, China began to offer pandas to other nations only on 10-year loans, under terms including a fee of up to US$1,000,000 per year and a provision that any cubs born during the loan are the property of China. Since 1998, because of a WWF lawsuit, the United States Fish and Wildlife Service only allows a US zoo to import a panda if the zoo can ensure that China will channel more than half of its loan fee into conservation efforts for the giant panda and its habitat.Because of the synchronous flowering, death, and regeneration of all bamboo within a species, the giant panda must have at least two different species available in its range to avoid starvation. While primarily herbivorous, the giant panda still retains decidedly ursine teeth and will eat meat, fish, and eggs when available. In captivity, zoos typically maintain the giant panda's bamboo diet, though some will provide specially formulated biscuits or other dietary supplements.When the cub is first born, it is pink, blind, and toothless, weighing only 90 to 130 grams (3.2 to 4.6 ounces), or about 1/800th of the mother's weight, proportionally the smallest baby of any placental mammal. It nurses from its mother's breast six to 14 times a day for up to 30 minutes at a time. For three to four hours, the mother may leave the den to feed, which leaves the cub defenseless.</p>
+
+<p>One to two weeks after birth, the cub's skin turns grey where its hair will eventually become black. Slight pink colour may appear on cub's fur, as a result of a chemical reaction between the fur and its mother's saliva. A month after birth, the colour pattern of the cub's fur is fully developed. Its fur is very soft and coarsens with age. The cub begins to crawl at 75 to 80 days; mothers play with their cubs by rolling and wrestling with them. The cubs can eat small quantities of bamboo after six months, though mother's milk remains the primary food source for most of the first year. Giant panda cubs weigh 45 kg (100 pounds) at one year and live with their mothers until they are 18 months to two years old. The interval between births in the wild is generally two years.</p>
