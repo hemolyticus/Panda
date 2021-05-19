@@ -4,6 +4,10 @@
 ![Philadelphia's Magic Gardens. This place was so cool!](https://upload.wikimedia.org/wikipedia/commons/9/90/Giant_Panda_2.JPG "Philadelphia's Magic Gardens")
 <br>
 <p>Initially, the primary method of breeding giant pandas in captivity was by artificial insemination, as they seemed to lose their interest in mating once they were captured. This led some scientists to try extreme methods, such as showing them videos of giant pandas mating and giving the males sildenafil (commonly known by name Viagra). Only recently have researchers started having success with captive breeding programs, and they have now determined giant pandas have comparable breeding to some populations of the American black bear, a thriving bear species.</p>
+<br>
+![Philadelphia's Magic Gardens. This place was so cool!](https://www.shutterstock.com/image-vector/vector-antique-style-japanese-maneki-neko-1576887700 "Philadelphia's Magic Gardens")
+
+
 
 <p>The normal reproductive rate is considered to be one young every two years.Two of the panda's most distinctive features, its large size and round face, are adaptations to its bamboo diet. Anthropologist Russell Ciochon observed: "[much] like the vegetarian gorilla, the low body surface area to body volume [of the giant panda] is indicative of a lower metabolic rate. This lower metabolic rate and a more sedentary lifestyle allows the giant panda to subsist on nutrient poor resources such as bamboo." Similarly, the giant panda's round face is the result of powerful jaw muscles, which attach from the top of the head to the jaw. Large molars crush and grind fibrous plant material.By 1984, however, pandas were no longer given as gifts.</p>
 
